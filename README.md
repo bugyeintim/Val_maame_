@@ -1,1 +1,1 @@
-A project that is about proosing to my girlfriend
+A project that is about proposing to my girlfriend
